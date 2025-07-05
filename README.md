@@ -1,2 +1,2 @@
 # loli24
-Author - Priya Sinha
+Author - Priya Sinha (lolivi)
